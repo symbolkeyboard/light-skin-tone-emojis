@@ -11,3 +11,212 @@ All emojis consist of official emoji characters, emoji names and meanings listed
 
 The easiest way to quickly **copy and paste emojis**.
 ### List of Light Skin Tone Emojis
+- 👋🏻 Waving Hand: Light Skin Tone
+- 🤚🏻 Raised Back of Hand: Light Skin Tone
+- 🖐🏻 Hand with Fingers Splayed: Light Skin Tone
+- ✋🏻 Raised Hand: Light Skin Tone
+- 🖖🏻 Vulcan Salute: Light Skin Tone
+- 👌🏻 OK Hand: Light Skin Tone
+- 🤏🏻 Pinching Hand: Light Skin Tone
+- ✌🏻 Victory Hand: Light Skin Tone
+- 🤞🏻 Crossed Fingers: Light Skin Tone
+- 🤟🏻 Love You Gesture: Light Skin Tone
+- 🤘🏻 Sign of the Horns: Light Skin Tone
+- 🤙🏻 Call Me Hand: Light Skin Tone
+- 👈🏻 Backhand Index Pointing Left: Light Skin Tone
+- 👉🏻 Backhand Index Pointing Right: Light Skin Tone
+- 👆🏻 Backhand Index Pointing Up: Light Skin Tone
+- 👇🏻 Backhand Index Pointing Down: Light Skin Tone
+- ☝🏻 Index Pointing Up: Light Skin Tone
+- 🖕🏻 Middle Finger: Light Skin Tone
+- 👍🏻 Thumbs Up: Light Skin Tone
+- 👎🏻 Thumbs Down: Light Skin Tone
+- ✊🏻 Raised Fist: Light Skin Tone
+- 👊🏻 Oncoming Fist: Light Skin Tone
+- 🤛🏻 Left Facing Fist: Light Skin Tone
+- 🤜🏻 Right Facing Fist: Light Skin Tone
+- 👏🏻 Clapping Hands: Light Skin Tone
+- 🙌🏻 Raising Hands: Light Skin Tone
+- 👐🏻 Open Hands: Light Skin Tone
+- 🤲🏻 Palms Up Together: Light Skin Tone
+- 🙏🏻 Folded Hands: Light Skin Tone
+- ✍🏻 Writing Hand: Light Skin Tone
+- 💅🏻 Nail Polish: Light Skin Tone
+- 🤳🏻 Selfie: Light Skin Tone
+- 💪🏻 Flexed Biceps: Light Skin Tone
+- 🦵🏻 Leg: Light Skin Tone
+- 🦶🏻 Foot: Light Skin Tone
+- 👂🏻 Ear: Light Skin Tone
+- 🦻🏻 Ear with Hearing Aid: Light Skin Tone
+- 👃🏻 Nose: Light Skin Tone
+- 👶🏻 Baby: Light Skin Tone
+- 🧒🏻 Child: Light Skin Tone
+- 👦🏻 Boy: Light Skin Tone
+- 👧🏻 Girl: Light Skin Tone
+- 🧑🏻 Person: Light Skin Tone
+- 🧔🏻 Person: Light Skin Tone, Beard
+- 👨🏻 Man: Light Skin Tone
+- 👩🏻 Woman: Light Skin Tone
+- 👨🏻‍🦰 Man: Light Skin Tone, Red Hair
+- 👩🏻‍🦰 Woman: Light Skin Tone, Red Hair
+- 👨🏻‍🦱 Man: Light Skin Tone, Curly Hair
+- 👩🏻‍🦱 Woman: Light Skin Tone, Curly Hair
+- 👨🏻‍🦳 Man: Light Skin Tone, White Hair
+- 👩🏻‍🦳 Woman: Light Skin Tone, White Hair
+- 👱🏻‍♂️ Man: Light Skin Tone, Blond Hair
+- 👱🏻‍♀️ Woman: Light Skin Tone, Blond Hair
+- 👨🏻‍🦲 Man: Light Skin Tone, Bald
+- 👩🏻‍🦲 Woman: Light Skin Tone, Bald
+- 🧓🏻 Older Person: Light Skin Tone
+- 👴🏻 Old Man: Light Skin Tone
+- 👵🏻 Old Woman: Light Skin Tone
+- 👼🏻 Baby Angel: Light Skin Tone
+- 💑🏻 Couple with Heart: Light Skin Tone
+- 💏🏻 Kiss: Light Skin Tone
+- 🙍🏻‍♂️ Man Frowning: Light Skin Tone
+- 🙍🏻‍♀️ Woman Frowning: Light Skin Tone
+- 🙎🏻‍♂️ Man Pouting: Light Skin Tone
+- 🙎🏻‍♀️ Woman Pouting: Light Skin Tone
+- 🙅🏻‍♂️ Man Gesturing No: Light Skin Tone
+- 🙅🏻‍♀️ Woman Gesturing No: Light Skin Tone
+- 🙆🏻‍♂️ Man Gesturing OK: Light Skin Tone
+- 🙆🏻‍♀️ Woman Gesturing OK: Light Skin Tone
+- 💁🏻‍♂️ Man Tipping Hand: Light Skin Tone
+- 💁🏻‍♀️ Woman Tipping Hand: Light Skin Tone
+- 🙋🏻‍♂️ Man Raising Hand: Light Skin Tone
+- 🙋🏻‍♀️ Woman Raising Hand: Light Skin Tone
+- 🧏🏻‍♂️ Deaf Man: Light Skin Tone
+- 🧏🏻‍♀️ Deaf Woman: Light Skin Tone
+- 🙇🏻‍♂️ Man Bowing: Light Skin Tone
+- 🙇🏻‍♀️ Woman Bowing: Light Skin Tone
+- 🤦🏻‍♂️ Man Facepalming: Light Skin Tone
+- 🤦🏻‍♀️ Woman Facepalming: Light Skin Tone
+- 🤷🏻‍♂️ Man Shrugging: Light Skin Tone
+- 🤷🏻‍♀️ Woman Shrugging: Light Skin Tone
+- 💆🏻‍♂️ Man Getting Massage: Light Skin Tone
+- 💆🏻‍♀️ Woman Getting Massage: Light Skin Tone
+- 💇🏻‍♂️ Man Getting Haircut: Light Skin Tone
+- 💇🏻‍♀️ Woman Getting Haircut: Light Skin Tone
+- 🤱🏻 Breast Feeding: Light Skin Tone
+- 🤰🏻 Pregnant Woman: Light Skin Tone
+- 👨🏻‍⚕️ Man Health Worker: Light Skin Tone
+- 👩🏻‍⚕️ Woman Health Worker: Light Skin Tone
+- 👨🏻‍🎓 Man Student: Light Skin Tone
+- 👩🏻‍🎓 Woman Student: Light Skin Tone
+- 👨🏻‍🏫 Man Teacher: Light Skin Tone
+- 👩🏻‍🏫 Woman Teacher: Light Skin Tone
+- 👨🏻‍⚖️ Man Judge: Light Skin Tone
+- 👩🏻‍⚖️ Woman Judge: Light Skin Tone
+- 👨🏻‍🌾 Man Farmer: Light Skin Tone
+- 👩🏻‍🌾 Woman Farmer: Light Skin Tone
+- 👨🏻‍🍳 Man Cook: Light Skin Tone
+- 👩🏻‍🍳 Woman Cook: Light Skin Tone
+- 👨🏻‍🔧 Man Mechanic: Light Skin Tone
+- 👩🏻‍🔧 Woman Mechanic: Light Skin Tone
+- 👨🏻‍🏭 Man Factory Worker: Light Skin Tone
+- 👩🏻‍🏭 Woman Factory Worker: Light Skin Tone
+- 👨🏻‍💼 Man Office Worker: Light Skin Tone
+- 👩🏻‍💼 Woman Office Worker: Light Skin Tone
+- 👨🏻‍🔬 Man Scientist: Light Skin Tone
+- 👩🏻‍🔬 Woman Scientist: Light Skin Tone
+- 👨🏻‍💻 Man Technologist: Light Skin Tone
+- 👩🏻‍💻 Woman Technologist: Light Skin Tone
+- 👨🏻‍🎤 Man Singer: Light Skin Tone
+- 👩🏻‍🎤 Woman Singer: Light Skin Tone
+- 👨🏻‍🎨 Man Artist: Light Skin Tone
+- 👩🏻‍🎨 Woman Artist: Light Skin Tone
+- 👨🏻‍✈️ Man Pilot: Light Skin Tone
+- 👩🏻‍✈️ Woman Pilot: Light Skin Tone
+- 👨🏻‍🚀 Man Astronaut: Light Skin Tone
+- 👩🏻‍🚀 Woman Astronaut: Light Skin Tone
+- 👨🏻‍🚒 Man Firefighter: Light Skin Tone
+- 👩🏻‍🚒 Woman Firefighter: Light Skin Tone
+- 👮🏻‍♂️ Man Police Officer: Light Skin Tone
+- 👮🏻‍♀️ Woman Police Officer: Light Skin Tone
+- 🕵🏻‍♂️ Man Detective: Light Skin Tone
+- 🕵🏻‍♀️ Woman Detective: Light Skin Tone
+- 💂🏻‍♂️ Man Guard: Light Skin Tone
+- 💂🏻‍♀️ Woman Guard: Light Skin Tone
+- 👷🏻‍♂️ Man Construction Worker: Light Skin Tone
+- 👷🏻‍♀️ Woman Construction Worker: Light Skin Tone
+- 🤴🏻 Prince: Light Skin Tone
+- 👸🏻 Princess: Light Skin Tone
+- 🎅🏻 Santa Claus: Light Skin Tone
+- 🤶🏻 Mrs. Claus: Light Skin Tone
+- 👳🏻‍♂️ Man Wearing Turban: Light Skin Tone
+- 👳🏻‍♀️ Woman Wearing Turban: Light Skin Tone
+- 👲🏻 Person with Skullcap: Light Skin Tone
+- 🧕🏻 Woman with Headscarf: Light Skin Tone
+- 🤵🏻 Person in Tuxedo: Light Skin Tone
+- 👰🏻 Person With Veil: Light Skin Tone
+- 🦸🏻‍♂️ Man Superhero: Light Skin Tone
+- 🦸🏻‍♀️ Woman Superhero: Light Skin Tone
+- 🦹🏻‍♂️ Man Supervillain: Light Skin Tone
+- 🦹🏻‍♀️ Woman Supervillain: Light Skin Tone
+- 🧙🏻‍♂️ Man Mage: Light Skin Tone
+- 🧙🏻‍♀️ Woman Mage: Light Skin Tone
+- 🧚🏻‍♂️ Man Fairy: Light Skin Tone
+- 🧚🏻‍♀️ Woman Fairy: Light Skin Tone
+- 🧛🏻‍♂️ Man Vampire: Light Skin Tone
+- 🧛🏻‍♀️ Woman Vampire: Light Skin Tone
+- 🧜🏻‍♂️ Merman: Light Skin Tone
+- 🧜🏻‍♀️ Mermaid: Light Skin Tone
+- 🧝🏻 Elf: Light Skin Tone
+- 🧝🏻‍♂️ Man Elf: Light Skin Tone
+- 🧝🏻‍♀️ Woman Elf: Light Skin Tone
+- 🚶🏻‍♂️ Man Walking: Light Skin Tone
+- 🚶🏻‍♀️ Woman Walking: Light Skin Tone
+- 🧍🏻 Person Standing: Light Skin Tone
+- 🧍🏻‍♂️ Man Standing: Light Skin Tone
+- 🧍🏻‍♀️ Woman Standing: Light Skin Tone
+- 🧎🏻 Person Kneeling: Light Skin Tone
+- 🧎🏻‍♂️ Man Kneeling: Light Skin Tone
+- 🧎🏻‍♀️ Woman Kneeling: Light Skin Tone
+- 👫🏻 Woman and Man Holding Hands: Light Skin Tone
+- 👬🏻 Men Holding Hands: Light Skin Tone
+- 👭🏻 Women Holding Hands: Light Skin Tone
+- 👨🏻‍🦯 Man with White Cane: Light Skin Tone
+- 👩🏻‍🦯 Woman with White Cane: Light Skin Tone
+- 👨🏻‍🦼 Man in Motorized Wheelchair: Light Skin Tone
+- 👩🏻‍🦼 Woman in Motorized Wheelchair: Light Skin Tone
+- 👨🏻‍🦽 Man in Manual Wheelchair: Light Skin Tone
+- 👩🏻‍🦽 Woman in Manual Wheelchair: Light Skin Tone
+- 🏃🏻‍♂️ Man Running: Light Skin Tone
+- 🏃🏻‍♀️ Woman Running: Light Skin Tone
+- 🕺🏻 Man Dancing: Light Skin Tone
+- 💃🏻 Woman Dancing: Light Skin Tone
+- 🕴🏻 Person in Suit Levitating: Light Skin Tone
+- 🧖🏻‍♂️ Man in Steamy Room: Light Skin Tone
+- 🧖🏻‍♀️ Woman in Steamy Room: Light Skin Tone
+- 🤹🏻‍♂️ Man Juggling: Light Skin Tone
+- 🤹🏻‍♀️ Woman Juggling: Light Skin Tone
+- 🧘🏻‍♂️ Man in Lotus Position: Light Skin Tone
+- 🧘🏻‍♀️ Woman in Lotus Position: Light Skin Tone
+- 🤸🏻‍♂️ Man Cartwheeling: Light Skin Tone
+- 🤸🏻‍♀️ Woman Cartwheeling: Light Skin Tone
+- 🏌🏻‍♂️ Man Golfing: Light Skin Tone
+- 🏌🏻‍♀️ Woman Golfing: Light Skin Tone
+- ⛹🏻‍♂️ Man Bouncing Ball: Light Skin Tone
+- ⛹🏻‍♀️ Woman Bouncing Ball: Light Skin Tone
+- 🤾🏻‍♂️ Man Playing Handball: Light Skin Tone
+- 🤾🏻‍♀️ Woman Playing Handball: Light Skin Tone
+- 🏋🏻‍♂️ Man Lifting Weights: Light Skin Tone
+- 🏋🏻‍♀️ Woman Lifting Weights: Light Skin Tone
+- 🚴🏻‍♂️ Man Biking: Light Skin Tone
+- 🚴🏻‍♀️ Woman Biking: Light Skin Tone
+- 🏇🏻 Horse Racing: Light Skin Tone
+- 🏂🏻 Snowboarder: Light Skin Tone
+- 🏄🏻‍♂️ Man Surfing: Light Skin Tone
+- 🏄🏻‍♀️ Woman Surfing: Light Skin Tone
+- 🚣🏻‍♂️ Man Rowing Boat: Light Skin Tone
+- 🚣🏻‍♀️ Woman Rowing Boat: Light Skin Tone
+- 🏊🏻‍♂️ Man Swimming: Light Skin Tone
+- 🏊🏻‍♀️ Woman Swimming: Light Skin Tone
+- 🤽🏻‍♂️ Man Playing Water Polo: Light Skin Tone
+- 🤽🏻‍♀️ Woman Playing Water Polo: Light Skin Tone
+- 🧗🏻‍♂️ Man Climbing: Light Skin Tone
+- 🧗🏻‍♀️ Woman Climbing: Light Skin Tone
+- 🚵🏻‍♂️ Man Mountain Biking: Light Skin Tone
+- 🚵🏻‍♀️ Woman Mountain Biking: Light Skin Tone
+- 🛀🏻 Person Taking Bath: Light Skin Tone
+- 🛌🏻 Person in Bed: Light Skin Tone
